@@ -37,4 +37,4 @@ Também pretendo desenvolver projetos próprios e explorar diferentes áreas da 
 📫 Contato
 
 📸 Instagram: @Toriii_yy
-💼 LinkedIn: em breve
+💼 LinkedIn: (https://www.linkedin.com/in/vit%C3%B3ria-ferreira-causso-0b17a442a/)
